@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ruei-Ning
 - 👀 I’m interested in nursing
 - 🌱 I’m currently learning Geriatric care
-- 💞️ I’m looking to collaborate on nursing research about Geriatric caee
+- 💞️ I’m looking to collaborate on nursing research about Geriatric care
 - 📫 My-email: smalldan00@gmail.com
 
 <!---
